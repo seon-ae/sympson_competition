@@ -1,0 +1,1 @@
+# sympson_competition
